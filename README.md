@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me shoot me a email at applegarden1906@outlook.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm open to learn anything!
+- ⚡ Fun fact: I know too much useless knowledge
 
 <!---
 Denolor/Denolor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
