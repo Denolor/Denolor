@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @Denolor
 - 👀 I’m interested in anything that relates to computers!
 - 🌱 I’m currently trying to learn Cybersecurity!
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me shoot me a email at applegarden1906@outlook.com
+- 💞️ I’m looking to collaborate on anything
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I know too much useless knowledge
 
